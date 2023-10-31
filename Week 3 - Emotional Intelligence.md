@@ -1,6 +1,6 @@
 Emotional intelligence (EQ) is the ability to recognize, understand, manage, and effectively use your own emotions, as well as the emotions of others. It plays a crucial role in personal and professional success. Here's an overview of emotional intelligence, strategies for improving it, and recognizing emotional manipulation tactics:
 
-### Emotional Intelligence (EQ):
+### Emotional Intelligence (EQ): 
 
 1. **Self-Awareness**: Recognize and understand your own emotions, triggers, and reactions. This involves being in touch with your feelings and being honest with yourself.
 
